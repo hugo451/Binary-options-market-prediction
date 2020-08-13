@@ -1,0 +1,1 @@
+Binary options market prediction
